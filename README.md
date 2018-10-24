@@ -1,3 +1,4 @@
-#ProductLife
+# Hays Stanford | Blog
+# url: blog.haysstanford.com
 
-Learn how to create your own products that are useful and make money.
+Personal blog of Hays Stanford
