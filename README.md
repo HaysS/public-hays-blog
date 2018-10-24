@@ -1,4 +1,5 @@
 # Hays Stanford | Blog
 
-url: blog.haysstanford.com
+url: blog.haysstanford.com  
+
 Personal blog of Hays Stanford
