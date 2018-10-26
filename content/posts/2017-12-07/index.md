@@ -13,7 +13,7 @@ tags:
 
 You see someone you love. They once loved you too.
 -------------------------------------------------------
-You miss the emotion. You may never feel it again.  At least, for a passing moment in time, you knew what it was like to just care about someone regardless of what occurs. 
+You miss the emotion. You may never feel it again.  At least, for a passing moment in time, you knew what it was like to care about someone regardless of what occurs. 
 
 **For those spare moments, you did not care about judgement.** You try to describe what you felt incessantly, forever pondering the meaning of this thing you can’t describe. 
 
