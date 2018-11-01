@@ -29,18 +29,22 @@ Why don't people like you?
 * Have really tiny feet, so much so that your feet look closer to cat paws
 * Less emotionally sensitive than most, almost sociopathic
 
-Notice something weird about this list? For every item, there is another item on the opposing side of it's spectrum (except for excessive flatulence, failure to crop dust your mom's beef stew across the classroom every 5 seconds is a welcome change). 
+Notice something weird about our list? 
+-----
+**For every item, there is another item on the opposing side of it's spectrum.** 
+
+Except for excessive flatulence. A failure to crop dust your mom's beef stew across the room every 5 seconds is a welcome change. 
+
+This is why it is true that the biggest part of connecting with someone is finding commonality with that person. They don't know anyone but themselves, & connection is largely found in commonality.
+
+It's much harder for someone to understand you if they can't understand what you're going through, or what you might be feeling. **It's not their fault. It's just a gap of knowledge.**
 
 
 
-The biggest part of connecting with someone is finding commonality with that person. They don't know anyone but themselves. It's much harder for someone to understand you if you don't have something they have experience with.
+This means that if you have a major characteristic that makes you different than the majority of people, it's going to be harder to find people you connect with. This is actually a good thing. Hear me out.
 
-
-
-This means that if you have a major characteristic that makes you obviously different than the majority of people, it's going to be harder to connect with people. This is actually a good thing. Hear me out.
-
-
-
+The Benefits of Social Isolation
+-----
 Being poised to view the more painful side of life can be one of the most beneficial things you will ever experience. Sometimes being forced to see the truth is the only way to find what's real. The truth lies outside of happiness, and is usually located near pain. Pain causes you to learn, and it's absence means things should remain the same.
 
 
