@@ -72,16 +72,21 @@ Very few people can do that. It's a hard skill to learn, most people can't find 
 
 
 
-The cool thing about being an outcast in this way is that we are essentially the forced leaders of society. We suck at conforming to the norms that precede acceptance by groups. Without the ability to connect with others through false beliefs, we have been forced to see the crevices of truth that lay behind the mirrored lies of others.
+<h4>The cool thing about being an outcast is that you are essentially a forced leader of society.</h4><br />
+
+Outcasts suck at conforming to the norms, which is why they don't get acceptance from groups. 
+
+Without the ability to connect with others through false beliefs, **outcasts are forced to see the crevices of truth that lay behind the false beliefs that hold groups together.**
+
+Our lives are hard. Who do we have turn to? Here's a hint: *It's you. You find the answers.*
+
+Reaching Greatness
+----
+Once you cultivate insights most people don't have, you become effective in ways that most people are not. 
+
+If most people think our planet is flat, then how in the fuck are they going to get to the moon? You and your scientific self know otherwise, and therefor you can discover calculus.
 
 
+Believe it or not calculus saves lives. *People now conform to calculus.* It's taught in public schools. In fact, it's part of the core curriculum for most STEM degrees. 
 
-Our lives are hard. Who do we have turn to? Here's a hint: It's you. You find the answers.
-
-
-
-Once you cultivate insights most people don't have, you become effective in ways that most people are not. If most people think our planet is flat, then how in the fuck are they going to get to the moon? You and your scientific self know otherwise, and therefor you can discover calculus.
-
-
-
-Believe it or not calculus saves lives. People now conform to calculus, it's taught in public schools. In fact, it's part of the core curriculum for most STEM degrees. The people who moved calculus forward were in a similar position to you. So now, ask yourself, who has helped the most people: Elvis Presley or Isaac Newton?
+The people who moved calculus forward were in a similar position to you. **So now, ask yourself, who has helped the most people:** _Elvis Presley or Isaac Newton_?
