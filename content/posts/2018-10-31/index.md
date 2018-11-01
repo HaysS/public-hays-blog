@@ -45,23 +45,30 @@ This means that if you have a major characteristic that makes you different than
 
 The Benefits of Social Isolation
 -----
-Being poised to view the more painful side of life can be one of the most beneficial things you will ever experience. Sometimes being forced to see the truth is the only way to find what's real. The truth lies outside of happiness, and is usually located near pain. Pain causes you to learn, and it's absence means things should remain the same.
+Being poised to view the more painful side of life can be one of the most beneficial things you will ever experience. Sometimes being forced to see the truth is the only way to find what's real. 
+
+If the pain wasn't there, you'd be able to turn away. This is why the truth frequently lies outside of happiness. Truth is usually located near pain. **Pain causes you to learn, and it's absence means things should remain the same.**
 
 
+Finding & Using Your Power
+-----
+So here comes diddly dabblin' ol you being rejected by every girl under the sun. Does it suck? **You're god damn right it sucks.** Is it a bad thing? **No.** This is your opportunity to find the truth no one is seeing. 
 
-So here comes diddly dabblin' ol you being rejected by every girl under the sun. Does it suck? You're god damn right it sucks. Is it a bad thing? No. This is your opportunity to find the truth no one is seeing. 
+<h4>Here's something great about the truth:</h4> 
+<h6>It makes you more effective at getting the results you want from the external world.</h6><br />
+
+This is why pain and suffering exist in the first place. They force you to change, so you become more effective at living, and well, not dying. 
+
+*Heed the call. Learn from the pain.* You will be that much closer to attaining what really matters if you do.
 
 
+How To Grow & Flourish
+-----
+So, why is it that we don't get better at connecting with people if we are suffering from frequent rejection? **I'd argue it's mainly due to avoidance.**
 
-Here's something great about the truth: It makes you more effective at finding what your looking for. 
+If you're constantly being rejected, use that to your advantage. *Bask in the rejection.* 
 
-
-
-That's why pain and suffering exist in the first place. They force you to change, so you become more effective at living, and well, not dying. Heed the call. Learn from the pain. You will be that much closer to attaining what really matters if you do.
-
-
-
-So, why is it that we don't get better at connecting with people if we are suffering from frequent rejection? I'd argue it's mainly due to avoidance. If your always rejected, use that to your advantage. Bask in the rejection. Very few people can do that. It's a hard skill to learn, most people can't find enough rejection for it to be consistent.
+Very few people can do that. It's a hard skill to learn, most people can't find enough rejection for it to be consistent.
 
 
 
