@@ -27,13 +27,16 @@ The practice of hedonism makes you no different from a trapped farm animal. You 
 
 
 
-Hedonism is living to die. It is living to avoid what may be true. It relinquishes the hope for something more, in pursuit of that which is already known. This is the epitome of stagnation in an ever-changing world, and stagnation is the epitome of death. That which does not change in any way will die. Adaptation is what separates lizards from rocks.
+Hedonism is living to die. 
+---------------------------
+It is living to avoid what may be true. It relinquishes the hope for something more, in pursuit of that which is already known. This is the epitome of stagnation in an ever-changing world, and stagnation is the epitome of death. That which does not change in any way will die. Adaptation is what separates lizards from rocks.
 
 
-This article is founded in the belief that your thoughts are the only thing you can know to be truly objective. There is a barrier between you and the external, and you can only partially mend that barrier with perception. You can know the exact state of your perceptions, but not the exact state of what you are perceiving, unless the perceptions are what is being perceived.
+Your thoughts are the only thing you can know to be truly objective. There is a barrier between you and the external, and you can only partially mend that barrier with perception. You can know the exact state of your perceptions, but not the exact state of what you are perceiving, unless the perceptions are what is being perceived.
 
 
-
+The Solipsism of Reality
+---------
 What these ideas consequently lead to is the conclusion that external facts cannot be known to objectively exist. At least, not yet. If the world could somehow be incorporated into the mind, without the barrier of perception, your mind would essentially be the world. Since you can't know external facts, anything could be possible in the external world.
 
 
