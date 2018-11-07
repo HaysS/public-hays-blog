@@ -2,7 +2,7 @@
 title: "Why Social Rejection is Good"
 cover: "https://unsplash.it/1280/500/?random?BoldMage"
 author: "hays"
-date: "2018-10-21"
+date: "2018-10-31"
 category: "general"
 tags:
     - general
