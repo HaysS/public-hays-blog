@@ -1,5 +1,5 @@
 ---
-title: "Bllee Blee Bloop Blop"
+title: "Objectivity & Your Life Purpose"
 cover: "https://unsplash.it/1280/500/?random?BoldMage"
 author: "hays"
 date: "2018-11-06"
@@ -9,84 +9,57 @@ tags:
     - life
 ---
 
-The Outcasts of Society
------
-This is an article written for people with lives that have been hard from a social context. It's for those who have faced near constant rejection. The people who can't connect with anyone. We are the outcasts of our own society.
+Why live? Conversely, why not let yourself die? It's an emotional decision, to be completely honest. Most of you who are reading this likely have some aversion to death. You may rationalize your explanation of this aversion to make yourself feel more rational, to feel less "insane."
 
 
 
-Why don't people like you? 
------
-**There's a large number of reasons, here's a few:**
-
-* More physically unattractive than average
-* Smarter than most people
-* More emotionally sensitive than most
-* Have really big feet relative to our body, like I'm talking size 16 men's shoes
-* Excessive flatulence
-* More physically attractive than average
-* Less intelligent than most people
-* Have really tiny feet, so much so that your feet look closer to cat paws
-* Less emotionally sensitive than most, almost sociopathic
-
-Notice something weird about our list? 
------
-**For every item, there is another item on the opposing side of it's spectrum.** 
-
-Except for excessive flatulence. A failure to crop dust your mom's beef stew across the room every 5 seconds is a welcome change. 
-
-This is why it is true that the biggest part of connecting with someone is finding commonality with that person. They don't know anyone but themselves, & connection is largely found in commonality.
-
-It's much harder for someone to understand you if they can't understand what you're going through, or what you might be feeling. **It's not their fault. It's just a gap of knowledge.**
+You probably turn away from the inkling of an idea in the back of your head that you may be totally insignificant, even if you were to suffer at maximum potential for an infinite amount of time. The truth is, your suffering or happiness may not matter at all, so why allow the dynamic of emotion to persist by attempting to continue your own survival?
 
 
 
-This means that if you have a major characteristic that makes you different than the majority of people, it's going to be harder to find people you connect with. This is actually a good thing. Hear me out.
-
-The Benefits of Social Isolation
------
-Being poised to view the more painful side of life can be one of the most beneficial things you will ever experience. Sometimes being forced to see the truth is the only way to find what's real. 
-
-If the pain wasn't there, you'd be able to turn away. This is why the truth frequently lies outside of happiness. Truth is usually located near pain. **Pain causes you to learn, and it's absence means things should remain the same.**
-
-
-Finding & Using Your Power
------
-So here comes diddly dabblin' ol you being rejected by every girl under the sun. Does it suck? **You're god damn right it sucks.** Is it a bad thing? **No.** This is your opportunity to find the truth no one is seeing. 
-
-<h4>Here's something great about the truth:</h4> 
-<h6>It makes you more effective at getting the results you want from the external world.</h6><br />
-
-This is why pain and suffering exist in the first place. They force you to change, so you become more effective at living, and well, not dying. 
-
-*Heed the call. Learn from the pain.* You will be that much closer to attaining what really matters if you do.
-
-
-How To Grow & Flourish
------
-So, why is it that we don't get better at connecting with people if we are suffering from frequent rejection? **I'd argue it's mainly due to avoidance.**
-
-If you're constantly being rejected, use that to your advantage. *Bask in the rejection.* 
-
-Very few people can do that. It's a hard skill to learn, most people can't find enough rejection for it to be consistent.
+It is completely possible that you not only die alone, but exist, and have always existed, alone. Have you ever experienced being someone else in an objective way? Obviously not, so why live? Why socialize? Why eat? For the pleasure? Does that really make sense? Living for pleasure seems incredibly futile.
 
 
 
-<h4>The cool thing about being an outcast is that you are essentially a forced leader of society.</h4><br />
-
-Outcasts suck at conforming to the norms, which is why they don't get acceptance from groups. 
-
-Without the ability to connect with others through false beliefs, **outcasts are forced to see the crevices of truth that lay behind the false beliefs that hold groups together.**
-
-Our lives are hard. Who do we have turn to? Here's a hint: *It's you. You find the answers.*
-
-Reaching Greatness
-----
-Once you cultivate insights most people don't have, you become effective in ways that most people are not. 
-
-If most people think our planet is flat, then how in the fuck are they going to get to the moon? You and your scientific self know otherwise, and therefor you can discover calculus.
+The practice of hedonism makes you no different from a trapped farm animal. You indulge yourself wherever you can, turning away from discomfort as much as possible so you can avoid the anxious thoughts that await you once you reach the inevitable slaughterhouse.
 
 
-Believe it or not calculus saves lives. *People now conform to calculus.* It's taught in public schools. In fact, it's part of the core curriculum for most STEM degrees. 
 
-The people who moved calculus forward were in a similar position to you. **So now, ask yourself, who has helped the most people:** _Elvis Presley or Isaac Newton_?
+Hedonism is living to die. It is living to avoid what may be true. It relinquishes the hope for something more, in pursuit of that which is already known. This is the epitome of stagnation in an ever-changing world, and stagnation is the epitome of death. That which does not change in any way will die. Adaptation is what separates lizards from rocks.
+
+
+This article is founded in the belief that your thoughts are the only thing you can know to be truly objective. There is a barrier between you and the external, and you can only partially mend that barrier with perception. You can know the exact state of your perceptions, but not the exact state of what you are perceiving, unless the perceptions are what is being perceived.
+
+
+
+What these ideas consequently lead to is the conclusion that external facts cannot be known to objectively exist. At least, not yet. If the world could somehow be incorporated into the mind, without the barrier of perception, your mind would essentially be the world. Since you can't know external facts, anything could be possible in the external world.
+
+
+
+This essentially makes the sensor the stimulus, which may not be achievable in a homogeneous way throughout an entire closed system. This thought boils down to this question: Can all of the things that can be measured in an entire system be measured by the entire system itself? I honestly don't know. However, this question will tie into the overall sentiment of this article later on.
+
+
+
+The problem is humans need objectivity to feel secure. Why do anything if every action you take technically has a totally unpredictable outcome? Even if you perceive the eventual results as being in line with the what you expected, if what I said before is true, it doesn't matter. Everything external is completely unstable in relation to your internal world. So why not kill the internal world? Why not die? Why live?
+
+
+
+What is the ultimate goal of self-awareness? I'd say the answer to this question is very ironic. Before I state it, let's list what I have stated earlier:
+
+* Nothing outside of your conscious thoughts can be known to be objective.
+
+* Anything is possible in the external world, since nothing in it can be known to be objective.
+
+* The only objective form of awareness is self-awareness. Sensors can only objectively measure the stimulus that they create for themselves.
+
+
+
+In case you haven't noticed, the motivating force that has propelled this entire thought process has been that conscious beings, or humans at least, need objectivity. It's what allows them to feel secure.
+
+
+
+On the other hand, objectivity can only be achieved within your own internal world. You can only know what you have created or concluded in your own mind.
+
+
+
+So, there is a goal which resolves all of these conflicts while still allowing you to maintain a purpose in continual existence. The goal of the self-aware is to expand self-awareness. You can only be objective by incorporating the external into the internal. The goal of self-awareness is to become more self-aware.
