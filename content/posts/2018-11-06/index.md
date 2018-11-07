@@ -9,15 +9,17 @@ tags:
     - life
 ---
 
-Why live? Conversely, why not let yourself die? It's an emotional decision, to be completely honest. Most of you who are reading this likely have some aversion to death. You may rationalize your explanation of this aversion to make yourself feel more rational, to feel less "insane."
+Why live? What's it for?
+-----------
+It's an emotional decision, to be completely honest. Most of you who are reading this likely have some aversion to death. You may create an overly rational explanation of this aversion to allow yourself to feel grounded, to feel less "insane."
 
 
 
-You probably turn away from the inkling of an idea in the back of your head that you may be totally insignificant, even if you were to suffer at maximum potential for an infinite amount of time. The truth is, your suffering or happiness may not matter at all, so why allow the dynamic of emotion to persist by attempting to continue your own survival?
+You probably turn away from the inkling of an idea in the back of your head that you may be totally insignificant, even if you were to suffer at maximum potential for an infinite amount of time. The truth is, suffering or happiness may not matter at all. Why allow the dynamic to persist?
 
-
-
-It is completely possible that you not only die alone, but exist, and have always existed, alone. Have you ever experienced being someone else in an objective way? Obviously not, so why live? Why socialize? Why eat? For the pleasure? Does that really make sense? Living for pleasure seems incredibly futile.
+The Internal Experience of Life
+--------
+It is completely possible that you not only die alone, but exist, and have always existed, alone. Have you ever experienced being someone else in an objective way? Obviously not, and if so I doubt you are sane. Why socialize? Why eat? For the pleasure? Does that really make sense? **Living for pleasure seems incredibly futile.**
 
 
 
