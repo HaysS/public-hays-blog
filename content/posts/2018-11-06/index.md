@@ -65,6 +65,6 @@ In case you haven't noticed, the motivating force that has propelled this entire
 
 On the other hand, objectivity can only be achieved within your own internal world. You can only know what you have created or concluded in your own mind.
 
-
-
+Conclusion
+----
 So, there is a goal which resolves all of these conflicts while still allowing you to maintain a purpose in continual existence. The goal of the self-aware is to expand self-awareness. You can only be objective by incorporating the external into the internal. The goal of self-awareness is to become more self-aware.
