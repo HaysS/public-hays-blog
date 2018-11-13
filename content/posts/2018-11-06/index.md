@@ -63,7 +63,7 @@ In case you haven't noticed, the motivating force that has propelled this entire
 
 
 
-On the other hand, objectivity can only be achieved within your own internal world. You can only know what you have created or concluded in your own mind.
+On the other hand, _objectivity can only be achieved within your own internal world._ You can only know what you have created or concluded in your own mind.
 
 Conclusion
 ----
